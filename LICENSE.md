@@ -1,4 +1,4 @@
-
+escape waves for lucky blocks underground Script is the best escape waves for lucky blocks Script, featuring auto-upgrade and god mode. Safe and
 
 
 
